@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @samsondevelop
+- 👀 I’m interested in coding n stuff
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on learnin stuff
+- 📫 How to reach me discord.com/users/849469238619668530

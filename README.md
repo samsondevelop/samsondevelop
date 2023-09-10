@@ -3,3 +3,5 @@
 - 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on learnin stuff
 - 📫 How to reach me discord.com/users/849469238619668530
+- I WILL BE RICH ONE DAY GUARANTEE IT, 100% self taught (thats why my code looks weird) i took computing but didn't learn anything cs it was all super basic
+- stack overflow owns me
